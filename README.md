@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jonesdy99
+- 👋 Hi, I’m Dylan Jones
 - 📫 How to reach me - jonesdylan1165@gmail.com
 
 <!---
